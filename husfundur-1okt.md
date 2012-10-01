@@ -1,39 +1,39 @@
-# HÚSFUNDUR OFANLEITISINS 1. OKTÓBER 2012 #
+# HÚSFUNDUR OFANLEITISINS 1. OKTÓBER 2012
 
-## Meistaramánuðurinn ## 
+## Meistaramánuðurinn 
 
 Ofanleitismeistaramánuðssíðan kemur upp í kvöld.
 
-### Skyndibiti ###
+### Skyndibiti
 
 Haukur talar um hve hrifinn hann er af Subway í hálftíma. 
 
 * Óhollur skyndibiti eigi oftar en 2x í viku.
 
-### Áfengisdrykkja ###
+### Áfengisdrykkja
 
 * Eigi oftar en 1x í viku, nema að sérstakri undanþágu veittri frá Ofanleitisdómstólinum.
 
-### Morgunvakningar ### 
+### Morgunvakningar 
 
 * Eigi síðar en 7:30.
 * Morgnar hefjast á eftirfarandi (í engri röð): Kaffi, lýsi, hafragraut.
 
-### Refsingar ### 
+### Refsingar
 
 * Rauður punktur í kladdann og fara í hjólið á English.
 
-## Matarinnkaup ##
+## Matarinnkaup
 
-### Miðvikudagur ###
+### Miðvikudagur
 
 Fiskur.
 
-### Fimmtudagur ### 
+### Fimmtudagur 
 
 Kjúklingur.
 
-### Almennt ### 
+### Almennt
 
 * Stórt brauð.
 * Lýsi.
@@ -55,7 +55,7 @@ Kjúklingur.
 * Nachos.
 * Café.
 
-## Hlutir sem okkur vantar ## 
+## Hlutir sem okkur vantar
 
 Eftirfarandi hluti getum við fundið í IKEA og Rúmfatalagerinum:
 
@@ -66,23 +66,23 @@ Eftirfarandi hluti getum við fundið í IKEA og Rúmfatalagerinum:
 * Partý-karfa.
 * Skúringarfata.
 
-## Miðvikudagar: Movie Nights? ##
+## Miðvikudagar: Movie Nights?
 
 The Beach, Happy Gilmore, etc, etc.
 
-## Random stelpu partý ##
+## Random stelpu partý
 
 Hrafn þarf að drekka meira. Og við þurfum að bjóða meira af stelpum í partý og ýta á eftir þeim að koma.
 
-## Stubbahús ##
+## Stubbahús
 
 Tala við Jóhann Helga.
 
-## Hlutir sem að Haukur þarf að gera betur ## 
+## Hlutir sem að Haukur þarf að gera betur
 
 * Sturta niður.
 * Vaska upp diskana.
 
-## Annað ## 
+## Annað
 
 * Hætta að vera hundleiðinlegir við nýja leigjandann (Ingólf ljósamann, yddara ofanleitisins, svefnmeistarann, etc).
