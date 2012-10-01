@@ -87,6 +87,10 @@ Tala við Jóhann Helga.
 
 Hörður bendir á þá staðreynd að sunnudagsbíó eru dýr og viðrar þá hugmynd að halda frekar sunnudagsbíó á Ofanleitinu. Vel er tekið í hugmyndina.
 
+## GIF-mynda síða fyrir Ofanleitið
+
+Hörður viðrar þá hugmynd að búa til GIF myndasíðu fyrir Ofanleitið þar sem að t.d. er hægt að setja inn myndir af honum að ljósameistarast. Hugmyndinni er illa tekið og felld.
+
 ## Annað
 
 * Hætta að vera hundleiðinlegir við nýja leigjandann (Ingólf ljósamann, yddara ofanleitisins, svefnmeistarann, etc).
