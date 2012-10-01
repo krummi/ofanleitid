@@ -1,4 +1,4 @@
-ofanleitid
+Ofanleitið
 ==========
 
-Allt sem að hefur að gera með Ofanleitið.
+Hér er að finna rafræna gagnageymslu Ofanleitisins.
