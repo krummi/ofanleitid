@@ -83,6 +83,10 @@ Tala við Jóhann Helga.
 * Sturta niður.
 * Vaska upp diskana.
 
+## Bíó
+
+Hörður bendir á þá staðreynd að sunnudagsbíó eru dýr og viðrar þá hugmynd að halda frekar sunnudagsbíó á Ofanleitinu. Vel er tekið í hugmyndina.
+
 ## Annað
 
 * Hætta að vera hundleiðinlegir við nýja leigjandann (Ingólf ljósamann, yddara ofanleitisins, svefnmeistarann, etc).
